@@ -1,0 +1,3 @@
+- bilibili: https://www.bilibili.com/read/cv34650116/
+- 森空岛: https://www.skland.com/article?id=1393461
+- NGA: https://bbs.nga.cn/read.php?tid=40264989
